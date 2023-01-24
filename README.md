@@ -1,1 +1,0 @@
-# slmax-testovoe-zadanie
